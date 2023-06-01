@@ -18,4 +18,4 @@
 - **https://www.instagram.com/dev_dobby1818/**
 
 ###### 하고 싶은 말?
-무슨 말을 해야 할지 참 고민되네요.
+Null
